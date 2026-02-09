@@ -12,7 +12,7 @@ Tenho 21 anos
 
 - Inglês avançado. 
 - Atualmente Estudando na FIAP
-- 💻 Estudante de Ciência da Computação Segundo Semestre
+- 💻 Estudante de Ciência da Computação Terceiro Semestre
 - 📚 Sempre buscando melhorar 
 
 <br/>
