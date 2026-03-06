@@ -1,6 +1,6 @@
 
 
-Sou o Pedro!  
+Olá, sou o Pedro!  
 Tenho 21 anos
 
 - Inglês avançado. 
