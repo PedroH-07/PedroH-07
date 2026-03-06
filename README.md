@@ -6,7 +6,8 @@ Tenho 21 anos
 - Inglês avançado. 
 - Atualmente Estudando na FIAP
 - 💻 Estudante de Ciência da Computação Terceiro Semestre
-- 📚 Sempre buscando melhorar 
+- 📚 Sempre buscando melhorar
+- Busco Estagio 
 
 <br/>
 
